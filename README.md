@@ -1,2 +1,2 @@
 # Practice-Project
-I am practicing in home at satuarday
+I am practicing in home at satuarday and sunday
